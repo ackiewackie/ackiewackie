@@ -1,5 +1,5 @@
 ﾟ+*:ꔫ:*﹤Hello!﹥*:ꔫ:*+ﾟ 
-<br> *♡∞:｡.｡ I'm a Junior majoring in Computer Science (Cybersecurity) (´｡• ᵕ •｡`) ♡	｡.｡:∞♡*
+<br> *♡∞:｡.｡ I'm a Senior in Computer Science (Cybersecurity) ♡	｡.｡:∞♡*
 
 <!---
 ackiewackie/ackiewackie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
